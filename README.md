@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @PotatoDoesStuff
+- 👀 I’m interested in Anime, coding, gaming and esports
+- 🌱 I’m currently learning python
+- 📫 How to reach me if you want to talk to me for some reason, add me on discord Potato#1828
